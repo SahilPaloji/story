@@ -1,0 +1,1 @@
+Once upon a time there was old blind man walking in the dark forest with a candle.
