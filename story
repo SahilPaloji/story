@@ -1,1 +1,1 @@
-Once upon a time there was old blind man walking in the dark forest with a candle.
+Once upon a time there was old blind man walking in the dark forest with a candle. While He was walking he came across three merchant sellers and collapsed with one of them.
